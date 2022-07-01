@@ -8,3 +8,6 @@ Tutorial: https://docs.github.com/en/get-started/writing-on-github/getting-start
 
 -->-->--> 자기소개 작성 시작 <--<--<--
 
+김한결 | 마태복음 11:28 KRV
+
+수고하고 무거운 짐진 자들아 다 내게로 오라 내가 너희를 쉬게 하리라
